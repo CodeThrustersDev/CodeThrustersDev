@@ -4,6 +4,7 @@
 - 💞️ I’m looking to collaborate on Dev boards and stuff..
 - 📫 How to reach me - my discord id is devilspite9903 (or just mail me on ipopl3363@gmail.com)
 - 😄 Pronouns:He/him
+- 🌐 I'm a Minecraft Gamer
 - ⚡ Join me on Youtube - The Modern Innovators
 
 <!---
